@@ -1,4 +1,6 @@
 ![image](https://github.com/Jahanvi20/Portfolio-website-jahanvi/assets/77480160/391fcd82-d4cf-4e00-a50d-e6ffb94fc0f9)
+![image](https://github.com/Jahanvi20/Portfolio-website-jahanvi/assets/77480160/8ba8262f-476f-4992-8d0e-dcbe2dabc91f)
+![image](https://github.com/Jahanvi20/Portfolio-website-jahanvi/assets/77480160/2fb45291-5d23-4403-8e80-309a4e1170b2)
 
 
 
